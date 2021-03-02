@@ -1,3 +1,1 @@
-444107882@qq.com
-This is my wife's.
-send me scr, pls.
+MY skype id is jn_kgn1018@outlook.com
