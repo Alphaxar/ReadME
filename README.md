@@ -1,2 +1,2 @@
-MY skype id is jn_kgn1018@outlook.com
+MY skype id is heracles710_rns
 Don't mention about this on freelancer.
