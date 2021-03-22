@@ -1,4 +1,3 @@
-I hope you will pay me 50cad via freelancer and pay me 100cad via paypal.
-Is this possible.
-If it is possible "yes", not "no". Don't mention about paypal on freelancer.
-I really hope you do that.
+My skype id is heracles710_rns.
+We can discuss about that on skype.
+Don't mention about skype on freelancer.
