@@ -1,1 +1,1 @@
-100cad via paypal and 50cad via freelancer.
+I am sorry, 150cad via freelancer.
